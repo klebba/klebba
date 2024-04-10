@@ -1,1 +1,1 @@
-# [🐆](https://klebba.net) [🔮](https://linkedin.com/in/klebba)
+# [🐆](https://klebba.com) [🔮](https://linkedin.com/in/klebba)
